@@ -1,6 +1,1 @@
-Federico Jose Rodriguez
-Lucas Samuel Beltran
-Micaela Calviño
-Nicolás Vicentín
-Silvina Soledad Aguilar
-
+La biblioteca especializada, universitaria,grutita de la Escuela de Música, Danza y Teatro situada en Paraná, en calle Italia 61, pone a disposición de sus usuarios su colección. Cuenta con libros sobre música, partituras, métodos para los distintos instrumentos, partituras en Braille, libros sobre danza, revistas y obras de teatro y libros sobre teatro. 
